@@ -1,3 +1,2 @@
-Hello
-How are you
-i am fine
+India is my country
+i love my country
